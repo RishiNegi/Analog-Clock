@@ -23,4 +23,4 @@ Acknowledgments
 Inspired by source-of-inspiration
 Contact
 
-For any questions or suggestions, please feel free to contact us at your-email@example.com.
+For any questions or suggestions, please feel free to contact us at rishinegi31@gmail.com.
